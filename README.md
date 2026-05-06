@@ -6,15 +6,15 @@
 
 </p>
 <p align="center">
-  <b>Sawtrap</b>/Gutz (<a href="https://pronouns.cc/@Sawtism">+</a>) <img src="https://files.catbox.moe/aqc5k2.gif" width="10px"> He/It Collectively <img src="https://files.catbox.moe/aqc5k2.gif" width="10px"> 19 [11/01]
+  <b>voxel</b>/ryfle (<a href="https://pronouns.cc/@Sawtism">+</a>) <img src="https://files.catbox.moe/aqc5k2.gif" width="10px"> it/that collectively <img src="https://files.catbox.moe/aqc5k2.gif" width="10px"> 20 [11/01]
   <br><br>
 <i>DNI if you aren't sillypilled and teeheemaxxing</i>
-<br>Autism, ADHD and DID haver 💔 (pick a struggle damn!)
-<br><b>Bestie Systems w @yahi4mice
+<br>we are a traumagenic system with npd, bpd and autihd , please be paitent with us
+<br><b>partner systems w/ @yahi4mice
 <br><br>
-Typically we don't interact with others as we're gatekeepy about our interests, sry ^^!
-<br> <i>Almost always seen with our roomates!</i>
-<br> <b>Silly little Rick Sanchez selfshipper, Do not interact if you're going to talk about shipping with him. /srs</b>
+typically we don't interact with others as we're gatekeepy about our interests, sry ^^!
+<br> <i>iwc always</i>
+<br> <b>married 2 the real kangel, do not interact if you're going to talk about selfshipping w/ my wife.</b>
 <br>
 <br> <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/borders/mine/sdivred1.png" width="600px">
 </p>
