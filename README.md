@@ -6,7 +6,7 @@
 
 </p>
 <p align="center">
-  <b>voxel</b>/ryfle (<a href="https://pronouns.cc/@Sawtism">+</a>) <img src="https://64.media.tumblr.com/9e4387ee6985cf7e4c18d950165615a6/75bb5a28ce8f8aa1-6a/s75x75_c1/b5ef0915a698b0014cc6fc10e161c20734617bf2.gifv" width="10px"> it/that collectively <img src="https://64.media.tumblr.com/9e4387ee6985cf7e4c18d950165615a6/75bb5a28ce8f8aa1-6a/s75x75_c1/b5ef0915a698b0014cc6fc10e161c20734617bf2.gifv" width="10px"> 20 [11/01]
+  <b>voxel</b>/ryfle (<a href="https://pronouns.cc/@Sawtism">+</a>) <img src="https://64.media.tumblr.com/1a8c0ef8d31eb534a32f6afc44bf5186/ff638594e2badbab-16/s75x75_c1/4f8e40c1c7f761d94cdb375b90df681bd8c307aa.gifv" width="10px"> it/that collectively <img src="https://64.media.tumblr.com/1a8c0ef8d31eb534a32f6afc44bf5186/ff638594e2badbab-16/s75x75_c1/4f8e40c1c7f761d94cdb375b90df681bd8c307aa.gifv" width="10px"> 20 [11/01]
   <br><br>
 <i>DNI if you aren't sillypilled and teeheemaxxing</i>
 <br>we are a traumagenic system with npd, bpd and autihd , please be paitent with us
